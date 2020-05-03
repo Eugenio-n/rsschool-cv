@@ -1,1 +1,0 @@
-# https://eugenio-n.github.io/rsschool-cv/cv	
